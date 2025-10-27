@@ -1,6 +1,6 @@
 If I may introduce myself briefly.
 Hello everyone, my name is Nils. 
-I am 20 years old and come from Germany near Cologne. 
+I am 21 years old and come from Germany near Cologne. 
 I have been pursuing the dream of working in IT for a long time. 
 I am currently attending a vocational college to complete a vocational baccalaureate in business and administration and get closer to my goal.
 I am very interested in all areas that this field entails.
